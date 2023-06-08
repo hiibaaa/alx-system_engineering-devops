@@ -1,2 +1,0 @@
-where am i
-second
